@@ -1,0 +1,2 @@
+# friends
+dedicated for friends
